@@ -1,8 +1,9 @@
-### Hyeee! I'm Sneha👋
+### Hyeee😁! I'm Sneha👋
 
 
 - 🔭 I’m currently working on Future Weather Forcast Project
-- 🌱 I’m currently learning DevOps tools , Graphic Designing
+- 🌱 I’m currently learning DevOps tools , Graphic Designing 
+- 👩‍🎓 I'm Currently persuing B-tech(CSE)
 - 💬 Ask me about Graphic Design ,Crafting ,DreamCatcher
 - 📫 How to reach me: Instagram [@neha_ali1](https://www.instagram.com/neha_ali11/?hl=en) ,
 My craft Page
