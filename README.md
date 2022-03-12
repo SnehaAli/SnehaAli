@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hyeee! I'm Sneha👋
 
 
 - 🔭 I’m currently working on Future Weather Forcast Project
